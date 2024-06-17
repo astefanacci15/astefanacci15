@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Kate Stefanacci Wortkoetter]
+# 👋 Hi, I'm Kate Stefanacci Wortkoetter
 
 🎓 **Student | Class of 2024**
 
